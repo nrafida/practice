@@ -1,4 +1,4 @@
 hehe
-rafida bau bushukkk
+rafida wangilah sangattt sksksk
 
 hoho adibah mengamuk hari ni
