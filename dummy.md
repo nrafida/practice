@@ -1,4 +1,5 @@
 hehe
-rafida wangilah sangattt sksksk
+
+betul la rafida bauuukkk
 
 hoho adibah mengamuk hari ni
