@@ -1,5 +1,3 @@
-hehe
+who knows if i never showed up what could have been?
 
-betul la rafida bauuukkk mana ada
-
-hoho adibah mengamuk hari ni
+there goes the last great american dynasty
